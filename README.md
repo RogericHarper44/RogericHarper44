@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 👋 Im Rogeric IT Professional
 
 <!--
 **RogericHarper44/RogericHarper44** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
